@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Inital d
+  1. Alt andet anime
+  2. One Piece
